@@ -1,7 +1,7 @@
 ## Nice to see you again! 
 
 
-![image](https://github.com/user-attachments/assets/545a6a46-0441-4fcb-9c62-3a3edbb45cc1)
+![image](https://github.com/user-attachments/assets/10f57e84-87bb-4780-8508-3e92788dcdfe)
 
 <!--
 **19JuanDavid/19JuanDavid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
