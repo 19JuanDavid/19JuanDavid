@@ -1,6 +1,3 @@
-## Nice to see you again! 
-
-
 ![image](https://github.com/user-attachments/assets/10f57e84-87bb-4780-8508-3e92788dcdfe)
 
 <!--
