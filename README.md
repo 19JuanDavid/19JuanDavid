@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/10f57e84-87bb-4780-8508-3e92788dcdfe)
+![image](https://github.com/user-attachments/assets/5c43c822-af91-49ed-aeaf-ce17080559a7)
 
 <!--
 **19JuanDavid/19JuanDavid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
